@@ -1,3 +1,3 @@
-Hi, I’m @EvaldasZmitra, I am interested in game development and networking.
+Hi, I’m @EvaldasZmitra
 
 evaldaszmit@gmail.com
